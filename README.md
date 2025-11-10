@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Stuff
 - 💞️ I’m looking to collaborate on ... I Fly Solo
 - 📫 How to reach me ... 597153@eriesd.org ... I will not answer
-- 😄 Pronouns: ... 
+- 😄 Pronouns: ... Don't/care :/
 - ⚡ Fun fact: ... "They couldn't hit an elephant from this dista- *dies*"
 
 <!---
